@@ -1,4 +1,4 @@
-# Hi there 👋 This is Adarsh's,  
+# Hi there 👋 This is Bubbsss's,  
 When curiosity meets caffeine, you’ll probably find me coding, tinkering, or daydreaming ideas into code.  
 
 🔭 Currently juggling a bunch of random (but awesome) side-projects  
